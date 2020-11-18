@@ -1,0 +1,2 @@
+# Japanese-English_Translation
+Japanese‐English_Translation
